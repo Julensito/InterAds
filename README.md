@@ -1,2 +1,0 @@
-# InterAds
-Professional Website
